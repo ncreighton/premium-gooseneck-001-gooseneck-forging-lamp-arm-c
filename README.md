@@ -1,0 +1,2 @@
+# premium-gooseneck-001-gooseneck-forging-lamp-arm-c
+Stop losing track of your forge schedule, material inventory, and customer orders. The Gooseneck Forging &amp; Lamp Arm Craft Studio Notion template turns studio chaos into a streamlined workflow.  This template centralizes every aspect of your gooseneck forging and lamp arm craft business—from raw material tracking to project timelines and client comm
